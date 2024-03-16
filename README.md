@@ -1,4 +1,4 @@
- 91吃瓜最新地址 https://91cg2.me
+ 91吃瓜最新地址 https://cg91.app
 
 91吃瓜备用地址  https://91cg2.cafe
 
@@ -6,7 +6,7 @@
 
 获取最新地址：发送任意信息到邮箱 91chigua@gmail.com
 
-加入微信扣扣粉丝群  https://91cg2.me?path=/qun.html
+加入微信扣扣粉丝群  https://cg91.app?path=/qun.html
 
 Telegram 官方用户群  https://t.me/cg91_home/5
 
