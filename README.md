@@ -1,6 +1,6 @@
  91吃瓜最新地址 https://cg91.app
 
-91吃瓜备用地址  https://91cg2.cafe
+91吃瓜备用地址  https://91cg2.loan
 
 永久地址（需VP恩、科学上网）https://91cg.fun
 
