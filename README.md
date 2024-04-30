@@ -1,12 +1,12 @@
-本站最新地址获取邮箱 更新于2024年4月26日
+本站最新地址获取邮箱 更新于2024年4月30日
 
-91吃瓜最新地址 https://cg91c.buzz   （请复制到浏览器打开）
+91吃瓜最新地址 https://91cg05.com   （请复制到浏览器打开）
 
 永久地址（需VP恩、科学上网）https://91cg.fun   （请复制到浏览器打开）
 
 失联获取最新地址：https://github.com/91cgfun/   （请复制到浏览器打开）
 
-加入微信扣扣粉丝群  https://cg91c.buzz?path=/qun.html   （请复制到浏览器打开）
+加入微信扣扣粉丝群  https://91cg05.com?path=/qun.html   （请复制到浏览器打开）
 
 Telegram 官方用户群  https://t.me/cg91_home/5   （请复制到浏览器打开）
 
