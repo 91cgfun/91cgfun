@@ -3,7 +3,7 @@
 
 曹县翰林府爆大瓜 女销售卖房另辟蹊径  视频曝光！
 
-https://cg91.win/?path=/archives/55312/
+https://www.91cg1.com/archives/55312
 
 
 91吃瓜最新地址 https://cg91.zone  （请复制到浏览器打开）
