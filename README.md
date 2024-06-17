@@ -3,16 +3,16 @@
 
 曹县翰林府爆大瓜 女销售卖房另辟蹊径  视频曝光！
 
-https://cg91.zone/?path=/archives/55312/
+https://cg91.run/?path=/archives/55312/
 
 
-91吃瓜最新地址 https://cg91.zone  （请复制到浏览器打开）
+91吃瓜最新地址 https://cg91.run  （请复制到浏览器打开）
 
 永久地址（需VP恩、科学上网）https://91cg.fun   （请复制到浏览器打开）
 
 失联获取最新地址：https://github.com/91cgfun/   （请复制到浏览器打开）
 
-加入微信扣扣粉丝群  https://cg91.zone?path=/qun.html   （请复制到浏览器打开）
+加入微信扣扣粉丝群  https://cg91.run?path=/qun.html   （请复制到浏览器打开）
 
 Telegram 官方用户群  https://t.me/cg91_home/5   （请复制到浏览器打开）
 
